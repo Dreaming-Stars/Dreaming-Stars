@@ -8,7 +8,7 @@
 
 
 
-<h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
+<h3 align="center">Grian /Gri . ݁₊ ⊹ Any . ݁₊ ⊹ 20+</h3>
 
  </p>
   
