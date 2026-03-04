@@ -20,9 +20,9 @@
 </p>
  <p align="center">
  Check out my  socials 
-☆ <a href="https://artfight.net/~DesertFlowers">Artfight</a> ☆
+⟡ . ⊹ <a href="https://artfight.net/~DesertFlowers">Artfight</a> ⟡ . ⊹
  <a href="https://desertflowers.straw.page">Strawpage!</a>
-☆ <a href="https://toyhou.se/DesertFlowers">Toyhouse</a> ☆
+⟡ . ⊹ <a href="https://toyhou.se/DesertFlowers">Toyhouse</a> ⟡ . ⊹
  </p>
  
  
