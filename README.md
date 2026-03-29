@@ -15,7 +15,7 @@
 <p><b> I'm often off-tab.But welcome to whisper though i may not respond!
  </p> I am  a rather quiet  mildly anxious person that tends to keep to myself or my friend group.It takes me awhile to open up to people its nothing personal, I also just dont have much to say in a conversation and would rather let people ramble on. 
  
-<img src="https://64.media.tumblr.com/bd9fae6a9312f5bef4202a62c8ad61e7/b26d14e7f8683def-68/s1280x1920/6fc961c48330438000265865fb4b2db417507c7a.pnj" width="80%">
+   <img src="https://64.media.tumblr.com/bd9fae6a9312f5bef4202a62c8ad61e7/b26d14e7f8683def-68/s1280x1920/6fc961c48330438000265865fb4b2db417507c7a.pnj" width="80%">
 
 </p>
  <p align="center">
