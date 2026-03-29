@@ -1,5 +1,5 @@
 > <i>proship/related. Minors, DT/WS fans/content DNI. <b>PLEASE DO NOT CUDDLE UP TO ME IF WE ARE STRANGERS <b></i>
-<img src="https://file.garden/aA_5BlelMxIUBG_x/giphy.gif" align="left" style="width: 350px;">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/9kt0j4n.gif" align="left" style="width: 350px;">
 <br> 
  <p align="center">
 <img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_c4df59ee6527a734abe4d08c50e08b52_c6cca947_250.gif">
@@ -8,7 +8,7 @@
 
 
 
-<h3 align="center">Grian /Gri ⟡ . ⊹ Any ⟡ . ⊹ 20+</h3>
+<h3 align="center">Grian/ Bug ⟡ . ⊹ Any ⟡ . ⊹ 20+</h3>
 
  </p>
   
