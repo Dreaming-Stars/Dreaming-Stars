@@ -2,7 +2,7 @@
 <img src="https://file.garden/aA_5BlelMxIUBG_x/9kt0j4n.gif" align="left" style="width: 350px;">
 <br> 
  <p align="center">
-<img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_c4df59ee6527a734abe4d08c50e08b52_c6cca947_250.gif">
+<img src="https://64.media.tumblr.com/fd4792a5ec2f90d71481bf24c5958690/a0fb739b2be83835-6d/s100x200/f99fb2e7dc59cc75961b7027206da925cfa615c4.gif">
  <img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_5c3e5ed57e7f83a0658f6c0eb4bc5b63_f1f84296_250.gif">
 <img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_f7608067cf612f1a2a43ae4426bf9a4f_f97714e9_250.gif">
 
