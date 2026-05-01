@@ -20,6 +20,7 @@
 </p>
  <p align="center">
  Check out my  socials 
+  </p>
 ⟡ . ⊹ <a href="https://artfight.net/~DesertFlowers">Artfight</a> ⟡ . ⊹
   <a href="https://toyhou.se/DesertFlowers">Toyhouse</a> ⟡ . ⊹
  </p>
